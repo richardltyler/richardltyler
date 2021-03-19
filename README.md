@@ -13,6 +13,6 @@
 - 💬 Ask me about [my pop-punk band](https://open.spotify.com/artist/61VYjVqZDICosHAw5iSqrq?si=nySeWuewQkSzCBoExMsQaw)
 - 📫 How to reach me: 
    - [LinkedIn](https://www.linkedin.com/in/richardltyler/)
-   - [Email](richardtyler2011@gmail.com)
+   - Email: richardtyler2011@gmail.com
 - ⚡ Fun fact: I was a linguist in the US Marine Corps! 
 -->
